@@ -3,6 +3,15 @@
 
 ### can you check my pings please and let me know how this is possible? and who is responsible for that?
 THANK YOU!
+
+https://github.com/153974-HSI-OXLEY-BANKS-40ACT/LASKOWITZ-HUMPHRIES-LEADERSHIP/blob/main/README.md
+
+oh im sorry they think its funny to jam up my internet?
+
+646-256-3609- 917 <6462563609@mms.att.net>
+
+-------- Forwarded Message --------
+
 ![image](https://user-images.githubusercontent.com/110014688/187112001-c2a05739-ddbf-48d0-bc79-9002092273b6.png)
 
  FAILURE OF A 40 ACT FUND cik filer 93715
