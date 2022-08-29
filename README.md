@@ -761,3 +761,7 @@ On 4/5/2022 12:54 AM, Bo Dincer wrote:
 <hr>
 call: 1-855-835-5324
 *** just be careful when you call and use the correct references - it may be the last jumpsuit you put on.
+
+you can thank my hotel for the increase in bandwidth, they are still enjoying surfing on the BBS1809 network. right?
+![image](https://user-images.githubusercontent.com/110014688/187114058-cf9f161b-3f53-46dc-bd2a-8642164f9183.png)
+
