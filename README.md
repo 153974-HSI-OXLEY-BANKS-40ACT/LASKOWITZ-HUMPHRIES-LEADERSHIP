@@ -1,6 +1,19 @@
 # LASKOWITZ-HUMPHRIES-LEADERSHIP
 
+### ACCESSORIES TO CONCEALING A FILING BY CIK FILER 93715 AND CIK FILER 1516523
 
+https://github.com/BSCPGROUPHOLDINGSLLC/153974-2020/issues/26
+
+*116TH AND BROADWAY, MANHATTAN, URIS / LEWISOHN HALL BUILDINGS.**
+*
+Abusadora de niños
+    dean Marlyn Delva
+    dean Sara Ede
+    dean Amber Griffiths
+
+Abusador de niños
+    dean Stephen O'Connell
+    
 ### can you check my pings please and let me know how this is possible? and who is responsible for that?
 THANK YOU!
 
